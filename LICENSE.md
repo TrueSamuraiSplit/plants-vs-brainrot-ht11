@@ -1,4 +1,4 @@
-
+Experience evade like never before with evade Scripts elite, the #1 Script. Includes infinite resources and invisibility for unbeatable performance.
 
 
 
